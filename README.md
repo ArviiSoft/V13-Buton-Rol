@@ -5,6 +5,8 @@
 
 # 💵・Hatalarla Uğraşmak İstemiyorsanız Satın Alabilirsiniz
 https://www.itemsatis.com/discord/v13-buton-rol-altyapisi-1741377.html
+
+https://www.itempazar.com/discord-uye-nitro-sunucu/v13-buton-rol-altyapisi-109930
 # 
 #
 
